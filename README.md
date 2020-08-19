@@ -1,1 +1,1 @@
-# A short Yoga Vocabulary
+# A short yoga vocabulary
