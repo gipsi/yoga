@@ -1,1 +1,1 @@
-# A short yoga vocabulary.
+# A selection of common yoga terms.
