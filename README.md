@@ -1,2 +1,2 @@
 # Yoga words
-As I learn them.
+A vocabulary.
